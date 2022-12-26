@@ -1,2 +1,2 @@
-# shoppping.github.io
-veryyyy hott
+# shustrushka.github.io
+online shop
